@@ -1,0 +1,1 @@
+# HypeHamster-Coin
